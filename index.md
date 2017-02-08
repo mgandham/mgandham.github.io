@@ -1,7 +1,6 @@
 ## 2/7/2017
 the most amazing thing I've seen recently: Adult sperm whales surfacing to check on their calves, off the coast of the Azores islands of Portugal. The Azores are supposed to be an excellent place for pelagic animal encounters, possibly the top thing on my bucket list. Photo by Andy Mann ([@andy_mann](https://www.instagram.com/andy_mann/)) and featured on National Geographic's Instagram account ([@natgeo](https://www.instagram.com/natgeo/))
-![Sperm Whales][photo272017]
-[photo272017]: https://scontent-lga3-1.cdninstagram.com/t51.2885-15/e35/16464078_1617713988255336_8586157451731009536_n.jpg
+![Sperm Whales](https://scontent-lga3-1.cdninstagram.com/t51.2885-15/e35/16464078_1617713988255336_8586157451731009536_n.jpg)
 
 ## 2/6/2017
 this morning I woke up naturally at 8:30 am. The lights in my brain turned on and I felt well-rested, but part of me wanted to continue sleeping and avoid the commitments of the day ahead. I figured it was okay for me to sleep in longer since I was still a student with no real responsibilities. Content with this line of reasoning, I seamlessly drifted into a half-asleep state. In my mind's eye I found a neatly folded scrap of parchment. It was a message to myself, from me. I opened it. In caligraphy, it said: "Wake Up." I crumpled up the parchment and tossed it in the direction of a freshly manifested wastebasket. The crumpled paper ball bounced off a white brick wall and arced neatly into the bin. Bank shot
