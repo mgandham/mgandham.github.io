@@ -1,7 +1,7 @@
 ## 2/7/2017
 ![Sperm Whales](https://scontent-lga3-1.cdninstagram.com/t51.2885-15/e35/16464078_1617713988255336_8586157451731009536_n.jpg)
 
-simply the most amazing thing I've seen recently: Adult sperm whales surfacing to check on their calves off the coast of the Azores islands of Portugal. The Azores are supposed to be an excellent destination for pelagic animal encounters, and diving with whales is possibly the top thing on my bucket list. Photo by Andy Mann ([@andy_mann](https://www.instagram.com/andy_mann/)) and featured on National Geographic's Instagram account ([@natgeo](https://www.instagram.com/natgeo/))
+simply the most amazing thing I've seen recently: Adult sperm whales rising from the depths to join their calves off the coast of the Azores islands of Portugal. The Azores are supposed to be an excellent destination for pelagic animal encounters, and diving with whales is possibly the top thing on my bucket list. It's only a matter of time! Photo by Andy Mann ([@andy_mann](https://www.instagram.com/andy_mann/)) and featured on National Geographic's Instagram account ([@natgeo](https://www.instagram.com/natgeo/))
 
 
 ## 2/6/2017
