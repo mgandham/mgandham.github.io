@@ -1,3 +1,8 @@
+## 2/17/2017
+their society had flying metal ears. In fact there was an entire animal kingdom of metallosynergetic lifeforms, but only a small subset of species were docile enough to reside in the inner cities. The ears were originally a viral lifeform much like mosquitos, and equally destructive. However since they preyed exclusively on other metallohybrids they could live alongside humans just fine, and in fact helped control the populations of metalmice and metalracoons for years. They were extremely sensitive to sound and could usually be found hanging out in the rafters of nightclubs and dancehalls across the city. Sometimes I'd find them perched on my window just resting, cleaning their antennae, and flapping their wings to the rhythm of my life
+
+
+
 ## 2/13/2017
 vibes.guide is up and I'm very happy to have an outlet for writing that is empty of any meaning or narrative. And yet how can I ignore the narrative that is real life? I got a Sharpie tattoo of a pirate skull and it has already fused into my being. I'm cooking spicy ass Thai food and now things are getting heated to the point where I can justify brewing Thai iced tea, and I am excited about my developing culinary skill set. I'm not ignoring my inherent tendencies but channeling them instead
 
