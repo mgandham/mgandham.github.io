@@ -1,3 +1,6 @@
+---
+---
+
 ## 11/15/2017
 before me lay a sprawling network of black lines tattooed on the back of the visitor in the ink of long-dead polar squids. It was metallic and radiant with echoing tones of celestial blue and frozen black. He was completely anesthesized with the herb-root concoction produced by the willow tree, as was necessary for the magic to take effect. From my low vantage point, close to the Earth's surface, I could not make out the full scale and complexity of the patten tattooed on his back, nor its significance. I could only appreciate its material qualities: its look and homogeneity. I was content to wonder how it might smell or taste were I to extract it and distill it from the flesh of his back. Better yet, to be the one drawing it from the polar squids, battling them across the ice with razor-sharp ice axes until they were weakened, slain, and Essence proffered. I seperated my consciousness from the material plane and floated away, rising higher to get a better look
 
