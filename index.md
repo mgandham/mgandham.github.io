@@ -35,7 +35,8 @@ The next iteration of The Rendering Core wasn't based in Yellowstone National Pa
 
 
 ## 2/7/2017
-![Sperm Whales](https://scontent-lga3-1.cdninstagram.com/t51.2885-15/e35/16464078_1617713988255336_8586157451731009536_n.jpg)
+
+![Sperm Whales](https://scontent-sea1-1.cdninstagram.com/v/t51.2885-15/e35/21435985_1946531085586644_5276237095432617984_n.jpg?_nc_ht=scontent-sea1-1.cdninstagram.com&_nc_cat=100&_nc_ohc=-gqFAExIgLQAX_elJsn&oh=1a6dcd22cdb237a7a6642fa61bd1134c&oe=5F5A0159)
 
 simply the most amazing thing I've seen recently: Adult sperm whales rising from the depths to join their calves off the coast of the Azores islands of Portugal. The Azores are supposed to be an excellent destination for pelagic animal encounters, and diving with whales is possibly the top thing on my bucket list. It's only a matter of time! Photo by Andy Mann ([@andy_mann](https://www.instagram.com/andy_mann/)) and featured on National Geographic's Instagram account ([@natgeo](https://www.instagram.com/natgeo/))
 
