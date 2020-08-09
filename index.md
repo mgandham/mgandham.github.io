@@ -1,11 +1,12 @@
----
----
+
+## 8/08/2020
+
 
 ## 11/15/2017
 before me lay a sprawling network of black lines tattooed on the back of the visitor in the ink of long-dead polar squids. It was metallic and radiant with echoing tones of celestial blue and frozen black. He was completely anesthesized with the herb-root concoction produced by the willow tree, as was necessary for the magic to take effect. From my low vantage point, close to the Earth's surface, I could not make out the full scale and complexity of the patten tattooed on his back, nor its significance. I could only appreciate its material qualities: its look and homogeneity. I was content to wonder how it might smell or taste were I to extract it and distill it from the flesh of his back. Better yet, to be the one drawing it from the polar squids, battling them across the ice with razor-sharp ice axes until they were weakened, slain, and Essence proffered. I seperated my consciousness from the material plane and floated away, rising higher to get a better look
 
 ## 4/1/2017
-I remember Seekers, the electric hummingbirds in Dead Central park. Ferrites are always silent save for a faint high-pitched hum. Metalflies thrive on avoiding detection. Metalmice are capable of producing synthy squeaks and but were also adept at staying silent as they creep behind household appliances. But the hummers pulsed with heavy vibes. The depth and clarity at which they could resonate within a small space was astounding, as well as the levels of pitch and perfection they could attain while tuning in at lower amplitudes. They were mystical and musical and mysterious. To see one was a very rare sight. Usually they were looking for loose cables
+ferrites silent save for a faint high-pitched hum. Metalflies thriving on avoiding detection. Metalmice capable of producing cheesy squeaks but also adept at staying silent as they crept behind kitchen appliances. But the hummers pulsed with heavy vibes. I remember seekers, the electric hummingbirds in dead Central park. The depth and clarity at which they could resonate within a small space was astounding, as well as the levels of pitch and perfection they could attain while tuning in at finer frequencies. They were mystical and musical and mysterious. To see one was a very rare sight. Usually they were looking for exposed wiring
 
 ## 2/17/2017
 their society had flying metal ears. In fact there was an entire animal kingdom of metallosynergetic lifeforms, but only a small subset of species were docile enough to reside in the inner cities. The ears were originally a viral lifeform much like mosquitos, and equally destructive. However since they preyed exclusively on other metallohybrids they could live alongside humans just fine, and in fact helped control the populations of metalmice and metalracoons for years. They were extremely sensitive to sound and could usually be found hanging out in the rafters of nightclubs and dancehalls across the city. Sometimes I'd find them perched on my window just resting, cleaning their antennae, and flapping their wings to the rhythm of my life
