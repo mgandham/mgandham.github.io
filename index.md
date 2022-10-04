@@ -1,4 +1,24 @@
 
+## 10/04/2022
+
+Earsplitting, ringing, deafening  
+silence following the thunderclap.  
+Roaring, crushing, crashing  
+vacancy all around me.  
+
+
+Vanished, vanquished, violent  
+vaccuum in your wake.  
+Empty time, space, and air  
+rushing in to fill the void.  
+
+
+Which hurts more: The dark?  
+Obscuring, concealing, supressing.  
+Or the blinding light of every day  
+Revealing the world without you.  
+
+
 ## 8/08/2020
 ash-laden toxic fumes wafted from the cavern's mouth. A blackened creek dribbled over the stones, past the jagged teeth, and into the night. Steam was rising here, but also something else. A sickly scent of rot mixed with sweet nectar carried on the breeze. The howl of a wolf, coming up the road behind me, broke me from my spell.
 
