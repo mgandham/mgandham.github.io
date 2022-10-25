@@ -1,9 +1,14 @@
+## 10/25/2022
+
+That time we went into a stinky barn to look at guinea pigs  
+Would have been happy to do that with you forever  
+fawning over you fawning over them  
 
 ## 10/04/2022
 
 Earsplitting, ringing, deafening  
 silence following the thunderclap.  
-Roaring, crushing, crashing  
+Roaring, crashing, crushing  
 vacancy all around me.  
 
 
@@ -13,10 +18,10 @@ Empty time, space, and air
 rushing in to fill the void.  
 
 
-Which hurts more: The dark?  
-Obscuring, concealing, supressing.  
+Which hurts more: The dark,  
+Obscuring, concealing, supressing?  
 Or the blinding light of every day  
-Revealing the world without you.  
+Revealing my world without you.  
 
 
 ## 8/08/2020
