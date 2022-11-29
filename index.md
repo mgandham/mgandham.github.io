@@ -12,12 +12,6 @@ Roaring, crashing, crushing
 vacancy all around me.  
 
 
-Vanished, vanquished, violent  
-vaccuum in your wake.  
-Empty time, space, and air  
-rushing in to fill the void.  
-
-
 Which hurts more: The dark,  
 Obscuring, concealing, supressing?  
 Or the blinding light of every day  
