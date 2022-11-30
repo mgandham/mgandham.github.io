@@ -1,3 +1,9 @@
+## 11/30/2022
+
+Imagine putting in  
+all that time, love, and energy  
+just to lose your best friend  
+
 ## 10/25/2022
 
 That time we went into a stinky barn to look at guinea pigs  
@@ -12,8 +18,8 @@ Roaring, crashing, crushing
 vacancy all around me.  
 
 
-Which hurts more: The dark,  
-Obscuring, concealing, supressing?  
+Which hurts more? The dark  
+Obscuring, concealing, supressing  
 Or the blinding light of every day  
 Revealing my world without you.  
 
