@@ -10,8 +10,8 @@ I'd be there for you
 and you knew it  
 
 
-Maybe even always  
-anyway it felt right  
+maybe even always  
+Anyway it felt right  
 but doesn't make sense anymore  
 
 
