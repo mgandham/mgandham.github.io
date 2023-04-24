@@ -1,3 +1,25 @@
+## 4/24/23
+
+We joked about  
+putting me down  
+as your emergency contact  
+
+
+Effortlessly sensible since  
+I'd be there for you  
+and you knew it  
+
+
+Maybe even always  
+anyway it felt right  
+but doesn't make sense anymore  
+
+
+Now at least I know  
+somehow sometime somewhere  
+I could still get your call  
+
+
 ## 3/15/23
 
 It's understandable to feel sadness and grief over a lost opportunity, especially when it involves someone you care deeply about. It's important to acknowledge and allow yourself to feel those emotions, rather than suppressing them. It's also important to remember that even if this particular relationship doesn't work out, there are still many possibilities for happiness and fulfillment in life. It's not helpful to compare yourself to a hypothetical future partner who may or may not exist, and to assume that they will be better than you in every way. Focus on being the best version of yourself and creating a fulfilling life, and trust that the right person will come along when the time is right
